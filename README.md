@@ -1,2 +1,0 @@
-# LingMou
-National Innovation
